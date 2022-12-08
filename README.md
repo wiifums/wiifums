@@ -3,6 +3,7 @@
 - DNIUPM means ( in my own defition ) " DO NOT INTERACT UNLESS PARTY MEMBER " , friends are welcome to interact despite that.
 
 - I don't shut up about Obbligato, sorry
+
    ^ I spoil lines of said event too soo... tehe :33 
    
 - patreon.com/hiy0mail
