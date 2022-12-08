@@ -9,6 +9,7 @@
 I don't rlly shut up about myself, again. sorry
 
    ───── ❝ 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 ❞ ─────
+   
 I'm super cool guys, pls follow me.
 I do poetry (!?)
 
