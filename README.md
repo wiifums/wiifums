@@ -1,22 +1,12 @@
-- DNI Enstars Fandom except if friend / friend of friend lmfao.
-- Read Patreon & Rentry actually 
-- DNIUPM means ( in my own defition ) " DO NOT INTERACT UNLESS PARTY MEMBER " , friends are welcome to interact despite that.
+Imagine ever so, having a TD/TT/DNT. I don't relate /hj
 
-- I don't shut up about Obbligato, sorry
+You're a loser if you take jokes too personally
 
-   ^ I spoil lines of said event too soo... tehe :33 
-   
-- patreon.com/hiy0mail
+»»————-　♔　————-««
 
-I don't rlly shut up about myself, again. sorry
+There's like, not much info you'll get here :/
 
-   ───── ❝ 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 ❞ ─────
-   
-I'm super cool guys, pls follow me.
-
-I do poetry (!?)
-
-Most definetely not the Enstarrie you see every inch you go at.
+View my patreon instead https://www.patreon.com/hiy0mail?fan_landing=true&view_as=public
 
 <!---
 wiifums/wiifums is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
