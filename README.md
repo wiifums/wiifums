@@ -2,6 +2,10 @@ Imagine ever so, having a TD/TT/DNT. I don't relate /hj
 
 You're a loser if you take jokes too personally
 
+If I approach one of the people that are making you un - comfy, . . . yes, I'm associated with them.
+
+Either one has to just, go karen mom mode over said person. or something.
+
 »»————-　♔　————-««
 
 There's like, not much info you'll get here :/
