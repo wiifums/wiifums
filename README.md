@@ -8,6 +8,8 @@ Either one has to just, go karen mom mode over said person. or something.
 
 »»————-　♔　————-««
 
+Also, I don't care if you ' reality - check ' me. either way I don't get the jist of even doing that on a Pony Game... itmakesyoulookstupid.
+
 There's like, not much info you'll get here :/
 
 View my patreon instead https://www.patreon.com/hiy0mail?fan_landing=true&view_as=public
