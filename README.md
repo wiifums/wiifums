@@ -1,18 +1,5 @@
-Imagine ever so, having a TD/TT/DNT. I don't relate /hj
-
-You're a loser if you take jokes too personally
-
-If I approach one of the people that are making you un - comfy, . . . yes, I'm associated with them.
-
-Either one has to just, go karen mom mode over said person. or something.
-
-»»————-　♔　————-««
-
-Also, I don't care if you ' reality - check ' me. either way I don't get the jist of even doing that on a Pony Game... itmakesyoulookstupid.
-
-There's like, not much info you'll get here :/
-
-View my patreon instead https://www.patreon.com/hiy0mail?fan_landing=true&view_as=public
+Soo like, read Patreon for more information; it's linked in some of my skins lol. 
+' Reality - Checking ' me won't do, those things are like Fan Mail to me lmao.
 
 <!---
 wiifums/wiifums is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
